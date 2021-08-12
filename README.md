@@ -1,0 +1,3 @@
+- 👋 Oi, eu sou @Wawawawaa
+- 👀 eu estou enteressado em qualquer coisa
+- só isso mesmo :)
